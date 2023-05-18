@@ -1,0 +1,15 @@
+{
+    "name": "workplace-culture-101-strategies-for-creating-an-inspiring-and-productive-work-environment",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
