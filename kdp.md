@@ -39,5 +39,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Human resources management
 18. Diversity and inclusion
 19. Corporate social responsibility
-20. Innovation and creativity.
+20. Innovation and creativity
 
