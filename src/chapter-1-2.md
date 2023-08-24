@@ -1,5 +1,3 @@
-Historical Perspectives on Workplace Culture Theory and Practice
-===============================================================================================================
 
 Workplace culture has evolved over time, with various theories and practices shaping its development. In this chapter, we will explore the historical perspectives on workplace culture theory and practice.
 

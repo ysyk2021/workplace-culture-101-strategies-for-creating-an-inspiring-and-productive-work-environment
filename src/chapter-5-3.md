@@ -1,5 +1,3 @@
-Addressing systemic barriers to diversity, equity, and inclusion
-========================================================================================================================================
 
 Diversity, equity, and inclusion (DEI) are critical components of a healthy workplace culture. A diverse workforce brings together different perspectives, experiences, and skills, which can lead to greater innovation and improved problem-solving. However, achieving true DEI requires addressing systemic barriers that prevent marginalized communities from accessing opportunities and thriving within organizations.
 

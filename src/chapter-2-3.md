@@ -1,5 +1,3 @@
-Building Skills for Creating a Positive Workplace Culture
-=================================================================================================================================
 
 Creating a positive workplace culture requires specific skills and strategies. In this chapter, we will explore some of the key skills needed to build a positive workplace culture.
 

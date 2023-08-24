@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Continuous Learning and Growth
-=============================================
 
 Chapter 6 explores strategies for encouraging continuous learning and growth in the workplace, and highlights the importance of providing opportunities for professional development and training.
 

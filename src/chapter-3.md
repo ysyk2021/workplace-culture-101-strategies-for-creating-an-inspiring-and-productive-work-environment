@@ -1,5 +1,3 @@
-Chapter 3: Developing a Vision for Workplace Culture
-============================================
 
 Chapter 3 explores strategies for developing a vision for workplace culture that aligns with organizational goals and values, and highlights the importance of effective communication and follow-through.
 

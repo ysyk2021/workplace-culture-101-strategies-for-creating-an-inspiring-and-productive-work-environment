@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Workplace Culture Performance
-=========================================================
 
 Chapter 8 highlights the importance of measuring and evaluating workplace culture performance, and provides strategies for using data and metrics to track progress and success.
 

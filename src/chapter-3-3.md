@@ -1,5 +1,3 @@
-Encouraging Ownership and Follow-Through
-===============================================================================================
 
 Developing a clear vision for workplace culture is essential for creating a positive and productive work environment. In this chapter, we will explore strategies for developing a vision for workplace culture and encouraging ownership and follow-through.
 

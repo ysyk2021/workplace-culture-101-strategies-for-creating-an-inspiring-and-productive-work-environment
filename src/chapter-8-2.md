@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-========================================================================================================================
 
 Measuring and evaluating workplace culture performance is essential for tracking progress and success towards achieving a positive and productive work environment. In this chapter, we will explore strategies for measuring and evaluating workplace culture performance using data and metrics.
 

@@ -1,5 +1,3 @@
-Defining Workplace Culture and Its Importance in the Modern Workplace
-====================================================================================================================
 
 Workplace culture refers to the shared values, beliefs, attitudes, and behaviors of a company's employees. It is the personality of the company, and it shapes the work environment and the experiences of its employees. In this chapter, we will explore the importance of workplace culture in the modern workplace.
 

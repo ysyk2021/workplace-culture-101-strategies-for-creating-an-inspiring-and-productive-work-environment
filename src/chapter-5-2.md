@@ -1,5 +1,3 @@
-Creating a Culture of Respect and Inclusivity
-======================================================================================================================
 
 Promoting diversity, equity, and inclusion (DEI) in the workplace is essential for creating a culture of respect and inclusivity. In this chapter, we will explore some strategies for promoting DEI in the workplace.
 

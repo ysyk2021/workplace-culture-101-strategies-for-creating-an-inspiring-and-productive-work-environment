@@ -1,5 +1,3 @@
-Developing Strategies for Creating a Safe and Healthy Work Environment
-================================================================================================================================
 
 Creating a safe and healthy work environment is essential for ensuring employee well-being and productivity. In this chapter, we will explore some strategies for creating a safe and healthy work environment.
 

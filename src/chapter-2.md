@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of a Positive Workplace Culture
-=============================================================
 
 Chapter 2 explores the benefits of a positive workplace culture for individuals and organizations, and highlights the importance of building skills for creating a positive workplace culture.
 

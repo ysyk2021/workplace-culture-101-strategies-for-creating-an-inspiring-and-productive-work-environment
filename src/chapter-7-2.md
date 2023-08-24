@@ -1,5 +1,3 @@
-Prioritizing Physical and Mental Well-being of Employees
-=================================================================================================================
 
 Creating a safe and healthy work environment is essential for promoting productivity, engagement, and satisfaction amongst employees. In this chapter, we will explore strategies for prioritizing the physical and mental well-being of employees, including promoting work-life balance, addressing workplace stressors, providing access to resources for self-care, and creating a supportive culture.
 

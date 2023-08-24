@@ -1,5 +1,3 @@
-Encouraging Innovation and Experimentation
-==================================================================================================
 
 In today's fast-paced business world, it is essential for companies to foster a culture of continuous learning and growth. One way to achieve this is by encouraging innovation and experimentation among employees.
 

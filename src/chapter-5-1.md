@@ -1,5 +1,3 @@
-Developing Strategies for Promoting Diversity, Equity, and Inclusion in the Workplace
-==============================================================================================================================================================
 
 Promoting diversity, equity, and inclusion (DEI) in the workplace requires specific strategies and initiatives. In this chapter, we will explore some strategies for promoting DEI in the workplace.
 

@@ -1,5 +1,3 @@
-Encouraging Open Communication and Active Listening
-================================================================================================================
 
 Open communication and active listening are essential for fostering employee engagement and collaboration in the workplace. In this chapter, we will explore some strategies that companies can use to encourage open communication and active listening.
 

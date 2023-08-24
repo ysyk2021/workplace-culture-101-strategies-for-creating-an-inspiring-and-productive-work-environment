@@ -1,5 +1,3 @@
-Chapter 5: Promoting Diversity, Equity, and Inclusion in the Workplace
-==============================================================
 
 Chapter 5 explores strategies for promoting diversity, equity, and inclusion in the workplace, and highlights the importance of creating a culture of respect and inclusivity.
 

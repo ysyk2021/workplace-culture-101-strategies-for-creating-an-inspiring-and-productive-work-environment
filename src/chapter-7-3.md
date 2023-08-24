@@ -1,5 +1,3 @@
-Addressing issues related to workplace safety and health
-=================================================================================================================
 
 A safe and healthy work environment is essential for employee well-being, productivity, and overall job satisfaction. Workplace safety and health issues can arise from hazards such as physical, chemical, biological, or psychological sources. It is crucial to address these issues proactively to ensure the safety and well-being of all employees.
 
