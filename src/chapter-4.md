@@ -1,5 +1,5 @@
 
-Chapter 4 explores strategies for fostering employee engagement and collaboration in the workplace, and highlights the importance of encouraging open communication and active listening.
+This chapter explores strategies for fostering employee engagement and collaboration in the workplace, and highlights the importance of encouraging open communication and active listening.
 
 Developing Strategies for Fostering Employee Engagement and Collaboration in the Workplace
 ------------------------------------------------------------------------------------------

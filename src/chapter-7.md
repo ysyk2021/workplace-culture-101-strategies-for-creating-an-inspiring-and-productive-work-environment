@@ -1,5 +1,5 @@
 
-Chapter 7 explores strategies for creating a safe and healthy work environment, and highlights the importance of prioritizing the physical and mental well-being of employees.
+This chapter explores strategies for creating a safe and healthy work environment, and highlights the importance of prioritizing the physical and mental well-being of employees.
 
 Developing Strategies for Creating a Safe and Healthy Work Environment
 ----------------------------------------------------------------------

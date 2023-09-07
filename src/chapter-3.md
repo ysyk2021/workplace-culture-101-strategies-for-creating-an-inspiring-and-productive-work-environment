@@ -1,5 +1,5 @@
 
-Chapter 3 explores strategies for developing a vision for workplace culture that aligns with organizational goals and values, and highlights the importance of effective communication and follow-through.
+This chapter explores strategies for developing a vision for workplace culture that aligns with organizational goals and values, and highlights the importance of effective communication and follow-through.
 
 Developing a Vision for Workplace Culture That Aligns with Organizational Goals and Values
 ------------------------------------------------------------------------------------------
