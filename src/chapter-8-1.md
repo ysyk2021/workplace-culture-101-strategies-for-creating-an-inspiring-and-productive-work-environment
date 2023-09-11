@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Importance of Measuring and Evaluating Workplace Culture Performance
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the importance of measuring and evaluating workplace culture performance. Effective measurement and evaluation provide valuable insights into the health and effectiveness of the workplace culture. This chapter will discuss the significance of assessing workplace culture, various measurement methods, and how to leverage evaluation results to drive positive change.
 

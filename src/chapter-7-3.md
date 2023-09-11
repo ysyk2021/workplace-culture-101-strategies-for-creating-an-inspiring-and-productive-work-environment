@@ -1,5 +1,4 @@
-Chapter 5: Developing Strategies for Creating a Safe and Healthy Work Environment
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the importance of creating a safe and healthy work environment. A safe and healthy workplace not only ensures the well-being of employees but also enhances productivity, engagement, and overall organizational success. This chapter will provide strategies and best practices for developing a culture that prioritizes safety and promotes employee well-being.
 

@@ -1,5 +1,4 @@
-Chapter 3: Communicating the Vision Effectively to All Employees
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the importance of effectively communicating the vision to all employees. A clear and compelling vision aligns employees' efforts, motivates them, and guides their actions. This chapter will provide strategies and best practices for communicating the vision in a way that inspires and engages employees at all levels.
 

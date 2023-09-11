@@ -1,5 +1,4 @@
-Chapter 4: Building Skills for Creating a Positive Workplace Culture
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the essential skills needed to build and sustain a positive workplace culture. Creating a positive culture requires intentional effort, effective leadership, and a set of skills that empower individuals to contribute to a healthy and thriving work environment. This chapter will delve into the key skills necessary for cultivating a positive workplace culture and provide insights on how to develop and enhance these skills.
 

@@ -1,5 +1,4 @@
-Chapter 4: Creating a Culture of Respect and Inclusivity
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the importance of creating a culture of respect and inclusivity. A respectful and inclusive workplace fosters collaboration, innovation, and employee well-being. This chapter will provide strategies and best practices for developing a culture that values diversity, promotes respect, and ensures everyone feels included.
 

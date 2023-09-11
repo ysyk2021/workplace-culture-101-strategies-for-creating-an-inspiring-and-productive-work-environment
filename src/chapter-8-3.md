@@ -1,5 +1,4 @@
-Chapter 6: Adjusting Workplace Culture Strategies as Needed
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the importance of adjusting workplace culture strategies as needed. Workplace cultures are dynamic, and it's essential to continuously assess and adapt strategies to meet evolving needs. This chapter will provide insights and best practices for effectively adjusting workplace culture strategies to ensure long-term success.
 

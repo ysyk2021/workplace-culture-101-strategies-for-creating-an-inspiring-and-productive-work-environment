@@ -1,5 +1,4 @@
-Chapter 3: Identifying Different Types of Workplace Cultures and Their Effects on Employee Motivation and Productivity
-======================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "Workplace Culture 101: Strategies for Creating an Inspiring and Productive Work Environment," we will explore the various types of workplace cultures that exist within organizations and their impact on employee motivation and productivity. Understanding different workplace cultures is crucial as it helps identify the strengths, weaknesses, and potential improvements needed to create a positive and thriving work environment. This chapter will delve into different workplace culture types and examine how they influence employee motivation and productivity.
 
